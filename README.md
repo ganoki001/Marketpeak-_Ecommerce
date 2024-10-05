@@ -1,4 +1,4 @@
-![Screenshot from 2024-10-04 00-48-19](https://github.com/user-attachments/assets/e84c3a3f-1c2e-4041-aaa7-afea44d33dc8) #git![Screenshot from 2024-10-04 00-49-09](https://github.com/user-attachments/assets/4b330bef-e282-4876-bf69-abd610debb24)
+![Screenshot from 2024-10-04 00-49-09](https://github.com/user-attachments/assets/4b330bef-e282-4876-bf69-abd610debb24)
 ![Screenshot from 2024-10-04 02-31-31](https://github.com/user-attachments/assets/058cbf2c-3325-4e6a-8327-c069fdf1cc3f)
 ![Screenshot from 2024-10-04 02-43-57](https://github.com/user-attachments/assets/c9167ce4-e26d-4465-8050-15990c99ff51)
 ![Screenshot from 2024-10-04 02-44-56](https://github.com/user-attachments/assets/33ce8ea0-d0eb-4b86-ae2b-f7704273af30)
